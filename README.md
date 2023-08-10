@@ -17,7 +17,7 @@ I'm Himanshu Dodiya a Front-end developer. I am always open to collaborating on 
 
 😄 Pronouns: He/His.
 
-⚡️ Fun fact: RCB will win the trophy 🏆.
+⚡️ Fun fact: A bug🐞 is never just a mistake. It represents something bigger. An error of thinking that makes you who you are.
 
 
 
